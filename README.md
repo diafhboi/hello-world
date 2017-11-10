@@ -1,2 +1,3 @@
 # hello-world
 Html and coding is really fun!
+I really like skittles and my dog Masha.I would love to start making money with html etc...
